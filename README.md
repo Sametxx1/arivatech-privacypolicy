@@ -1,0 +1,1 @@
+# arivatech-privacypolicy
